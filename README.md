@@ -5,4 +5,4 @@ After buying an Apple TV I noticed there aren't a whole lot of party games on it
 
 Feel free to download and throw on your Apple TV to enjoy some fun with friends! 
 
-I got the questions from this this [reddit article](https://www.reddit.com/r/trivia/comments/3wzpvt/free_database_of_50000_trivia_questions/).
+I got the questions from this [reddit article](https://www.reddit.com/r/trivia/comments/3wzpvt/free_database_of_50000_trivia_questions/).
